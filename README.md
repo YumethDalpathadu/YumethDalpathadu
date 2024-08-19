@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YumethDalpathadu
-- 👀 I’m interested in Programming
+- 👀 I’m interested in Programming and English Literiture
 - 🌱 I’m currently learning Buissness Studies,Accounts,Econ,English Lit,Programming
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me instagram yumethd_
